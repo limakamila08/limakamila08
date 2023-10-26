@@ -8,3 +8,5 @@
   ### você pode entrar em contato comigo 📪
 
   kamila.fernandes.lima@escola.pr.gov.br
+
+  ![](https://media.tenor.com/kLN0OuTw2SwAAAAi/cavalinho-palmeiras.gif)
